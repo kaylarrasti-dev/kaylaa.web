@@ -1,2 +1,0 @@
-# kaylaa.web
-for schooll
